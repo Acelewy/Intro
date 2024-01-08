@@ -6,4 +6,4 @@ Education : Currently pursuing my Bsc in Applied Maths in Unilag
 Experience : Next to none which is i why im participating.
 
 
-Thank you for the opportunity
+Thank you for the opportunity . 
